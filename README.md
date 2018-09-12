@@ -9,4 +9,5 @@
 
 
 > 半撇[官网](http://www.bpteach.com/)/[微博](http://weibo.com/bpteach)/[豆列](http://www.douban.com/people/bpteach/doulists/all)
+> 半撇[官网](http://www.bpteach.com/)/[微博](http://weibo.com/bpteach)/[豆列](http://www.douban.com/people/bpteach/doulists/all)
 
